@@ -1,1 +1,1 @@
-# arzor-privacy-policy
+# Arzor Privacy - policy
